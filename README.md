@@ -1,1 +1,2 @@
-# gits-msib4-tugas2
+Nama : Naufal Attaqiy Iskandar
+Asal Universitas : Universitas Gunadarma
